@@ -2,13 +2,19 @@ The Stickman
 
 July 6 1969, 10 years ago
 
-"Julie stop, what are you doing get down from there!"
+"Julie stop, what are you doing, get down from there!"
 
 "ARHHHHH!!! ARGHHHHHHHHHHHHHHHHHHHHH!"
 
-"Are you insane get down from there, JULIE!!!"
+"Are you crazy, get down from there, JULIE!!!"
 
-A fight broke out in the other room, I heard books falling to the ground. I squeezed my 6 year old body into a tiny ball, leaning against the bedroom wall, I wondered what was going on. Ever since the start of the year, my elder sister had gone insane and always screamed and yelled before going to sleep. Her bedroom wall was always scribbled with her blood.
+A fight broke out in the other room, I heard books falling to the ground. I squeezed my 6 year old body into a tiny ball, leaning against the bedroom wall, I wondered what was going on. Ever since the start of the year, my elder sister had gone insane and always screamed and yelled before going to sleep. Everyday, she would draw on her bedroom wall with her blood.
+
+"NO STOP IT STOP..."
+
+The room went dead silent.
+
+sister hung herself
 
 _"The stickman comes to those who sleep,
 _when nightfall comes their souls he reaps.
